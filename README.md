@@ -17,5 +17,5 @@
 
 dni if the "i ship it" parody of "i love it" was not an integral part to your internet upbringing
 
-35 y/o millennial stuck in the body of a 20 year old man
+35 y/o millennial stuck in the body of a 21 year old man
 </p>
