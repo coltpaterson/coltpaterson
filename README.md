@@ -18,4 +18,6 @@
 dni if the "i ship it" parody of "i love it" was not an integral part to your internet upbringing
 
 35 y/o millennial stuck in the body of a 21 year old man
+
+i have a discord server for true pervert friendship! whisper me if u'd like to join : ) there's already a few people i promise it's not #awkotaco in there
 </p>
