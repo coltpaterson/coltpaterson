@@ -17,5 +17,5 @@
 
 dni if the "i ship it" parody of "i love it" was not an integral part to your internet upbringing
 
-i have a discord server for true pervert friendship! whisper me if u'd like to join : ) there's already a few people i promise it's not #awkotaco in there. don't be scared to whisper me. it's ok. it's gonna be ok.
+i have a discord server for true pervert friendship! whisper me if u'd like to join : ) there's already a few people i promise it's not #awkotaco in there. don't be scared to whisper me. it's ok. it's gonna be ok. (or add me @uteroguro )
 </p>
