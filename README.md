@@ -16,5 +16,6 @@
 <p align="center">
 
 dni if the "i ship it" parody of "i love it" was not an integral part to your internet upbringing
-@ephemeraljackpot what is your fucking issue
+
+[@ephemeraljackpot](https://github.com/ephemeraljackpot) what is your fucking issue
 </p>
